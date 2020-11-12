@@ -1,0 +1,1 @@
+The assignment's main purpose is summarizing the chapters we have covered throughout past semester.
